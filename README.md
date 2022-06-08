@@ -1,5 +1,10 @@
 # SPSGP-15345-Salesforce-Developer-Catalyst-Self-Learning-Super-Badges
 Salesforce Developer Catalyst Self-Learning &amp; Super Badges
 
-My Trailhead URL : https://trailblazer.me/id/razhakhan
+Ahmed Razha Khan Shaik
+ANITS
+Andhra Pradesh, India
+32 Badges
+30,875 Points
 
+My Trailhead URL : https://trailblazer.me/id/razhakhan

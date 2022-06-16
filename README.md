@@ -5,6 +5,6 @@ Ahmed Razha Khan Shaik |
 ANITS |
 Andhra Pradesh, India |
 32 Badges |
-30,875 Points
+53,625 Points
 
 My Trailhead URL : https://trailblazer.me/id/razhakhan
